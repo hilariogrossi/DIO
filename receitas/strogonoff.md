@@ -28,6 +28,4 @@
 
 4. Desligue o fogo e acrescente 1 lata de creme de leite.Misture novamente.
 
-5. 
-
-Sirva em seguida.
+5. Sirva em seguida.
